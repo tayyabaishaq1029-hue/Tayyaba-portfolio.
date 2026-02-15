@@ -1,0 +1,2 @@
+# Tayyaba-portfolio.
+Graphic Designer
